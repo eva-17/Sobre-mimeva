@@ -1,5 +1,5 @@
 # 💫 Sobre mim:
-## Br-Pt 🏳️‍🌈
+## Br-Pt 
 
 ° Não estou trabalhando no momento, mas serei uma futura programadora e psicóloga.<br><br>° Sou mineira de coração tocantinense. Cheguei ao Tocantins há 8 anos com minha família, que é composta por 4 pessoas: meu pai, de 46 anos; minha mãe, de 45 anos; meu irmão, de 22 anos; e eu, que tenho 18 anos de idade;<br>º Uma admiradora de cores vermelhas;<br>º Meu hobbies é desenhar com tinta óleo, faço desenhos de anime e mulheres não nua;<br>º Sou amante de livros de ficção cientifica e drama. Ás vezes assisto algumas séries, mas prefiro filme independente do gênero, menos terror.  
 
